@@ -2,9 +2,7 @@
 My first project
 
 PLEASE DONT COPY!
-PLEASE DONT COPY!
-PLEASE DONT COPY!
-PLEASE DONT COPY!
+
 PLEASE DONT COPY!
 
 if your read this readme.md file thank you
